@@ -1,1 +1,1 @@
-- Read our rentry for everything. It's in the links. Go to our strawpage if you wanna leave gimmicks, we really appreciate those.
+- Read our rentry for everything if you want to, all our interests and whatever are in there. It's in the links. Go to our strawpage if you wanna leave gimmicks, we really appreciate those.
