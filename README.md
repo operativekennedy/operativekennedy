@@ -1,0 +1,1 @@
+- Read our rentry for everything. It's in the links. Go to our strawpage if you wanna leave gimmicks, we really appreciate those.
